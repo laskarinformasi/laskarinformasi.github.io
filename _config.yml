@@ -76,7 +76,8 @@ plugins:
   - jekyll-paginate
   - jekyll-gist
   - jekyll-data
-  - jemoji  
+  - jemoji
+  - jekyll-theme  
 
 # Front Matter Defaults
 defaults:

@@ -30,6 +30,9 @@ Berikut ini adalah syarat donor darah sebagaimana tercantum dalam Leaflet **Petu
    - Peminum alkohol
    - Berganti-ganti pasangan
    - Interval 1 tahun setelah pembuatan tatto
+
+
 -------
+
 <sup>1</sup>. Penulis pernah bermaksud mendonorkan darah, tetapi oleh petugas ditolak karena Hb 13,2 (rendah). Nilai normal Hb pria dewasa 14 - 18 g/dl, sedangkan pada wanita dewasa normalnya 12 - 16 g/dl. Referensi nilai normal Hb :  Charles Patrick Davis. Hemoglobin (Low and High Range Causes) [Internet]. New York: MedicineNet,Inc; 2017 [updated 2017 November 8; cited 2018 June 3]. Available from: https://www.medicinenet.com/hemoglobin/article.htm .
 
