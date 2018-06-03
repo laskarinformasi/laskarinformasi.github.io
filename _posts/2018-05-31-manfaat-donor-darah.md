@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2018-05-31
-title: Manfaat Donor Darah"
+title: Manfaat Donor Darah
 ---
 
 Berikut adalah beberapa manfaat donor darah :
