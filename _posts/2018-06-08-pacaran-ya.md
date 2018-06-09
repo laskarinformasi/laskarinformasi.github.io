@@ -40,7 +40,7 @@ Nah, memang yang namanya pacaran yang sehat itu kayaknya sulit diwujudkan. Sehin
 
 -------
 
-1   Disalin dengan perubahan seperlunya dari _Pacaran Ya....?_ yang ditulis oleh Farid Prianggono, S.Si yang disampaikan disampaikan pada acara TALKSHOW "_Sex Education for Teenagers_", Kamis, 7 Oktober 2004 di SMA 1 Semarang.  
+1   Disalin dengan perubahan seperlunya dari _Pacaran Ya....?_ yang ditulis oleh Farid Prianggono, S.Si yang disampaikan pada acara TALKSHOW "_Sex Education for Teenagers_", Kamis, 7 Oktober 2004 di SMA 1 Semarang.  
 
 2   Pada teks asli tertulis "bias" kami koreksi atas inisiatif kami agar sesuai dengan makna yang dimaksud.
 
