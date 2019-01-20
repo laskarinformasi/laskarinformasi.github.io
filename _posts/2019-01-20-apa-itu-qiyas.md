@@ -11,4 +11,5 @@ Syaikh Abdul Wahhab Khallaf menyebutkan qiyas adalah mempersamakan suatu kasus y
 
 -------
 <sup>1</sup> Sarwat A. Qiyas : sumber hukum syariah keempat. cet.1. Jakarta : Rumah Fiqih Publishing. 2019. hal. 13.
+
 <sup>2</sup> Khallaf AW. Ilmu ushul fiqh. Zuhri M, Naqib A, terj. cet. 1. Semarang : Dina Utama. 1994. hal. 66.   
