@@ -3,9 +3,13 @@ layout: post
 title : "Syarah Aqidatul Awwam - 001 - Muqaddimah - 1"
 date : 2018-12-20
 ---
-![Aku memulai menulis nazham ini dengan menyebut nama Allah dan Ar Rahman](/gambar/aqidatulawwam/aqidatulawwam001a.png)
+![](/gambar/aqidatulawwam/aqidatulawwam001a.png)
 
-![serta Ar Rahim yang senantiasa memberi kebaikan](/gambar/aqidatulawwam/aqidatulawwaam001b.png)
+Aku memulai menulis nazham ini dengan menyebut nama Allah dan Ar Rahman
+
+![](/gambar/aqidatulawwam/aqidatulawwam001b.png)
+
+serta Ar Rahim yang senantiasa memberi kebaikan
 
 Syaikh Ahmad Al Marzuqi, sebagaimana kebiasaan ulama, memulai menulis kitab dengan mengucap bismillah. Apa maksudnya?
 
