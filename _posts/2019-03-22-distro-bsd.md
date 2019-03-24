@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Distro BSD"
-date: 2019-22-23
+date: 2019-03-23
 ---
 **_Berkeley Software Distribution_** atau biasa disebut BSD merupakan sistem operasi yang simpel tapi tangguh. BSD memiliki banyak distro, antara lain :
 
